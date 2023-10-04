@@ -30,6 +30,8 @@
 
   >Algunas de mis metas que me gustaria cumplir es el tener el **_coche de mis sueños_** aparcado en mi puerta, tener el suficiente dinero como para que **_mis padres no tenga que volver a trabajar_**, y por ultimo se que es imposible pero me gustaria que **_no se me fueran mis familiares_**.
 
+![](nissan-gt-r35.gif)
+
 ## 4. ¿_Que inspiraciones tengo en la vida_?
 <p>
 
